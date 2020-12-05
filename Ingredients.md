@@ -1,4 +1,4 @@
-## INGREDIENTS
+## *INGREDIENTS*
 
  1.  1 cup whole wheat flour
  2.  5 tbsp cocoa powder
